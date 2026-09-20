@@ -27,4 +27,4 @@ Cannot remember recent events
 Need constant reminders
 Remember older memories well
 Can often learn some motor skills (like riding a bicycle) without remembering practicing
-(According to Chatgpt There is no official medical staging system specifically for anterograde amnesia. However, doctors often describe the severity as mild, moderate, or severe.)
+(According to Chatgpt There is no official medical staging system specifically for anterograde amnesia. However, doctors often describe the severity as mild, moderate, or severe.
